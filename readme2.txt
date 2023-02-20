@@ -1,0 +1,1 @@
+primul a esuat 
